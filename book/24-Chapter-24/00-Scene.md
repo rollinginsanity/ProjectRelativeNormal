@@ -1,0 +1,1 @@
+The trio arrive at the holding facility. They stealth their way in, but Mandrell is there waiting with an elite squad. The trio fight through, and Ryan goes to save Kate, while Aarna and Jack go to fight Mandrell. However, Jack is killed saving Aarna from a bullet. Mandrell and Aarna fight, and Mandrell impaled on a bit of broken scenery. They talk, and then Mandrell dies.

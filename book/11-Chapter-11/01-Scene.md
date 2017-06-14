@@ -1,0 +1,1 @@
+Aarna is looking through the older, abandonned, part of the town. There's signs that there was fighting there at some stage, and she finds bodies of families in some of the houses. She finds a bullet, and a discarded MetSec weapon, and she wonders what happened here. She had never heard of MetSec killing people like this. 

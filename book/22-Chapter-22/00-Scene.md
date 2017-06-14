@@ -1,0 +1,1 @@
+Mandrell gets bollocked for his behaviour, the loss of Aarna and team, and putting Maelstrom resources at uneeded risk. He's suspicious of Kate, and plans to investigate.

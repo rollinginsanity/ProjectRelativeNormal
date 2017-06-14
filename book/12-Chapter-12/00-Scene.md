@@ -1,0 +1,1 @@
+The three reunite. Jack claims to have found somewhere to lie low, pushing to stay, but Aarna and Ryan share what they found, and suspect a large part of the towns population has been pressed in to forced labour. 

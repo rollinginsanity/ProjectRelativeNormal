@@ -1,0 +1,1 @@
+The trio are out of the subway system, in bushland. It's cold, and it's early morning (after a night in the Subway). They journey up the old trainline, find an old abandonned town. They find some bikes and plan to head further in to the mountains. Ryan contacts someone in the bluecrew and agrees to meet them further in the mountains.

@@ -1,0 +1,1 @@
+Mandrell is being breifed by a surveillance agent, who, on a tip from an officer that saw Jack, tracked him to the area where the three outlaws were staying. Mandrell order officers to the location.

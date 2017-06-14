@@ -1,0 +1,1 @@
+The trio have been on the move for a few days. Town after town is empty. It looks like they've all had the same violence commited in them. They've began to piece together that the so called automated farming network actually required a fair amount of hands on labour, and that the populations of these towns have been pressed in to service. 

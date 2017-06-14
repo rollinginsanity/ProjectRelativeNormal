@@ -1,0 +1,1 @@
+Mandrell goes apeshit at his agents, his team, Kate, and the newly arrived Phillip Burke, from Maelstrom.

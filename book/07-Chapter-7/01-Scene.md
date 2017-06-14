@@ -1,0 +1,1 @@
+The three are stripped of their weapons and gear, and are in a cell. They know Mandrell is on his way. They make a plan (get to the old subway, get out of the city) and break out (Aarna fakes illness). They get their gear and leave, and on the way out Aarna sees Mandrell before escaping in a MetSec car.

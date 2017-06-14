@@ -1,0 +1,1 @@
+Rupert Maelstrom and others are talking about the good work Aarna and team are doing. One of the others asks if it will be allowed to go full rebellion. Rupert says that all it needs to do is expose the corruption so that the government can be made fresh.

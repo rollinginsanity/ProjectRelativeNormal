@@ -1,0 +1,1 @@
+They've been back in the city for a couple of weeks, slowly pulling together the bits they need, however, their plans have been forced in to motion. Kate has been caught out, and arrested. The trio devise a plan to save her.

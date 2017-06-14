@@ -1,0 +1,1 @@
+White continues their monologue

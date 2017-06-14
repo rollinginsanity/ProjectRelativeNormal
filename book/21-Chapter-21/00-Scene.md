@@ -1,0 +1,1 @@
+The team begin planning their way back to the city. There's a fully automated agtrain that they will jump in to. They prepare plans and kit.

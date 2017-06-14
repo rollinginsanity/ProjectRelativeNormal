@@ -1,0 +1,1 @@
+The three are on the other side of the mountains, overlooking a large town. They agree to split up and look for shelter, parts of the town look abandoned. Ryan decides to try and break in to the agri-transport station and poke around to see if he can find anything useful.

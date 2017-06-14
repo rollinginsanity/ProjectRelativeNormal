@@ -1,0 +1,1 @@
+Mandrell finally gains intel on where the trio are hiding, partly through tracking devices, sattelite footage, and reports of a gunfight.

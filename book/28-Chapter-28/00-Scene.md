@@ -1,0 +1,1 @@
+Maelstom tells them what they have done is good. That they were needed. He tells them what he was doing, but that he couldn't actively step out. He says what will happen to the politicians, and then offers them jobs with him. There's much more that needs to be fixed.
