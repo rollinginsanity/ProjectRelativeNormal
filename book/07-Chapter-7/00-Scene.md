@@ -1,0 +1,1 @@
+The three leave the stormwater control room, and find they are in a well-patrolled area of the city. They are caught instantly, and taken to a MetSec substation.

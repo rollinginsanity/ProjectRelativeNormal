@@ -1,0 +1,1 @@
+Mandrell doesn't take the news well, and is angry that the three outlaws got away. He walks in to a pre-arranged meeting with Kate Dalian, who used to work with Aarna at the BSO. The plan had been to get an idea of how to interrogate Aarna, but instead recruits her in to his taskforce. 
