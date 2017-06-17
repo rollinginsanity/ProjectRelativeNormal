@@ -1,0 +1,1 @@
+A mysterious character, only known as 'White' appears on an internet stream. Said character has a monologue about the blindess of the society in the city.
