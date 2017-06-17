@@ -1,0 +1,1 @@
+The scene opens with Aarna and Ryan troublshooting Aarna's new left arm, which isn't working right. They are casually talking about their situation. Jack arrives with supplies. He seems kind of shaken. Soon after his return MetSec appear down in the street outside.
