@@ -1,20 +1,32 @@
-## Chapter 1
+## Chapter 1 - Cook the Bacon.
 
 "Is that better?" asked Ryan. He leant back, removing the adjustment tool from the inner components of Aarna's left cybernetic arm.\
-Aarna tried moving the arm, components whirring. "I don't think so," she replied.\
-Ryan sighed. "We've been at this for hours now, I've looked at every possibility for the lag, I'm not sure what it could be."\
-Aarna stood up and walked accross the dilapidated apartment to the window, rotating her arm as she did so. "Maybe it's just the stress," she replied. "It's not unheard of," she continued as she looked out the window to the street below. There were some kids out playing and a few of the peddlers had come out to try and hock their wares, not the rain had gone.\
-"But the other arm, both legs and all those other random bits and pieces floating around inside you are fine? I'm just saying it's odd is all," said Ryan, packing away the tools he had been using to fix Aarna's arm.\
-Aarna pulled a box from her pocket and pulled out a cigarette. The things were illegal these days, but out in the slums plenty of back-alley manufacturers packed whatever they thought would sell in to a pack of cigarettes and sold them to whoever was buying.\
-Ryan thought Aarna struck an imposing presence as she stood by the window. The war hadn't been easy on her, it was plain to see at this moment. She was only in shorts and a tshirt, her usual when the pair were servicing her cybernetics. She had no original limbs left. Both arms and both legs had been lost, the left arm the most recently in a gunfight with MetSec. A shredder round, designed to pulp a target, had hit it, but given she was on the run, getting a hold of a decent replacement for her last human limb hadn't been easy, and she'd had to go with an older model.\
-"I still don't get why you smoke, the air-exchange module you have would just filter out the toxins," said Ryan, closing the latch on the tool kit. Unlike Aarna, he only had a cybernetic right hand, which had never given him issues.\
-"Yeah, it's just habit nowdays," replied Aarna, breathing a stream of smoke out of her mouth with the words.\
-Ryan moved over to the window next to her and took the cigarette out of her hand and took a long drag on it before handing it back.\
-"Smooth," he said before blowing it out, his eyebrows forming a pained frown.\
+Aarna tried moving the arm, components whirring as she flexed and stretched the matte-black appendage. "I don't think so," she replied.\
+Ryan sighed. "We've been at this for hours now, I've looked at every possibility for the lag, I'm not sure what it could be." Ryan leant back in his chair, massaging is forehead.\
+Aarna stood up and walked accross the dilapidated apartment to the window, rotating her arm as she did so, not that she needed to, artificial limbs didn't cramp up.\
+"Maybe it's just the stress," she replied. "It's not unheard of for stress to mess with the brain-machine interfaces," she continued as she looked out the window to the street below. There were some kids out playing and a small number peddlers had come out to try and hock their wares, not the rain had gone.\
+"But the other arm, both legs and all those other random bits and pieces floating around inside you are fine? I'm just saying it's odd is all," said Ryan, packing away the tools he had been using to fix Aarna's arm, carefully placing each tool back in it's place in his small tool pack.\
+Aarna pulled a box from her pocket and pulled out a cigarette. The things were illegal these days, but out in the slums plenty of back-alley manufacturers packed whatever they thought would sell in to a cigrette and sold them to whoever was buying. Aarna had decided a long time ago that she had a self destructive streak, damn it if _she_ was going to die of natural causes.\
+Aarna struck an imposing presence as she stood by the window. The war hadn't been easy on her. She was only in shorts and a tshirt, her usual when the pair were servicing her cybernetics, which exposed the fact that she had no original limbs left. Both arms and both legs had been lost, the left arm recently in a gunfight with MetSec. A shredder round, designed to pulp a target, shredded the arm to pieces. You don't have many options when you are a fugative and getting a hold of a decent replacement for her last human limb hadn't been easy, the older model that had been attached at the shoulder wasn't great, but it would have to do.\
+"I still don't get why you smoke, your lungs were build to filter out that crap," said Ryan, referencing the fact that Aarna some of Aarna's organs weren't original either.
+"Yeah, it's just habit nowdays," replied Aarna, breathing a stream of smoke out of her mouth with the words. She'd picked up smoking in the war, something most of the infantry did back then.\
+Ryan moved over to the window next to her and took the cigarette out of her hand and took a long drag on it before handing it back. He found the acrid smoke unpleasant, especially concerning were the hints of additives that weren't tabacco.\
+"Smooth," he said before blowing it out, his eyebrows forming a pained frown as he did so.\
 "I'd like to move on soon," said Aarna after a short silence, "We've been here almost a week, and I don't imagine they've stopped looking for the three rouge BSO agents yet."\
 "Kill one politician..." replied Ryan, letting the sentence fall away. "Things are good here, there's been no sign of a MetSec investigation, and none of our contacts have reported any intel that they know we're here." Ryan caught Aarna's gaze and returned it. "We're _safe_ here, Soot," he added, using the Nickname he had called Aarna ever since they served in the war.\
-Aarna sighed, "Maybe you're right."
-Ryan headed back to finish cleaning the table, and Aarna continued to look out the window, maybe the running could be over. It had been months of hideouts, sleeping in drains and just evading MetSec since they had publically and violently killed one of the most corrupt politicians that the city had ever seen.\
-The intent wasn't for the killing to be public, but no plan ever survives a first encounter, as a commanding officer had once told her.\
-Aarna was broken from her thoughts by the sound of feet in the hallway outside, a soft beep and the door unlocking, followed by Jack, the third in their group of outlaws.\
-"Guys," he said, "We've got to go, MetSec knows."
+Aarna sighed, "Maybe you're right."\
+It had been weeks since they had moved in to the abandonned apartment in the slums, there were other residents of the building they were in, but not many since the government started issuing grants to get people to move out of the city to regional towns. Aarna thought it odd that they hadn't been tracked yet. Three months ago they had killed a politician very publically and very brutally. Not that she had intended to, the plan had been to confront him publically about what he had done, bankrolling terrorist attacks to justify more police and more weapons, both of why were being supplied by a company owned by the same politician. _Children_ had died in that attack, he had killed children, and Ryan and Aarna, along with another compatroit, Jack, had ended him.\
+Ryan headed back to the table to finish cleaning up while Aarna flexed and unflexed her left hand. There was a fraction of a second's delay from when she thought about closing her hand to her hand actually closing. Her right arm was instant, no problems at all. Odd indeed.
+There was the sound of a key in the door lock and Jack entered, two paper bags in hand. He used his hip to close the door behind him before setting the paper bags on the table.\
+"Breakfast anybody?" he asked. He pulled out a carton of eggs and some bacon from one of the bags, and pulled a portable stove out of a cupboard.\
+"What you got there?" Asked Ryan, walking over and poking at the bacon, "are you sure we can trust meat from this area?" he added. Most of the food products available in the slums were grown in the slums.\
+"My thought exatly, I went two suburbs over and got them in Kensington," he said as he plgged the stove in to a power outlet and switched it on.\
+"You what?" said Aarna, her attention snapping from the view out the window.\
+"Kensington, you know, not too far, steered clear of MetSec mind you, they were all about."\
+"Shit, you've... shit!" exclaimed Aarna, "are you sure you weren't spotted, did you keep yourself hidden?"\
+"Yeah, it's fine," replied Jack. "I went to a smaller grocer, I'm pretty sure I wasn't seen."\
+The three stayed silent for thirty seconds, a look of concern growing on Jack's face. "What?" he said.\
+"Get the tracker," said Aarna to Ryan. Ryan disapeered in to a room and came back out with a phone that had been modified to listen and recieve MetSec comms. Most of them were encrypted, but the modified device could at least tell them how much communications traffic there was.\
+Ryan tapped away at the screen, "We have seventeen active MetSec in the area, normally we'd be lucky to see one," said Ryan.\
+Jack put the bacon down and sighed, "So we need to move again?" he said. "Just when I thought were safe."\
+"To be honest Jack we needed to move anyway, cook the bacon, let's at least enjoy it before we leave."\
